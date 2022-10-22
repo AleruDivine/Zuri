@@ -1,3 +1,3 @@
-https://replit.com/@AleruDivine
+REPLIT LINK: https://replit.com/@AleruDivine
 
 https://guessmynumber.alerudivine.repl.co
